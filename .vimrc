@@ -1,1 +1,1 @@
-sdkasldklaskd;s
+imap jj <Esc>
